@@ -3,3 +3,7 @@
 我们不会搜集您的任何信息。
 
 1. 我们需要您的设备网络来访问数据
+
+联系我们
+
+email:tushningjj@foxmail.com
